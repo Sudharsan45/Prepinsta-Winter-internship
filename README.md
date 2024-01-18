@@ -1,1 +1,1 @@
-The projects which I had done during my prepinsta data analyst winter intership are listed below
+As a Data Analyst Intern, I'll dive into the world of numbers, turning raw data into meaningful insights. I'll learn through information, spot trends, and help make informed decisions. Collaborate with the team, mentors, and present findings in a way that everyone can understand. It's my hands-on opportunity to grow your analytical skills and make a real impact by prepinsta winter internship program.
